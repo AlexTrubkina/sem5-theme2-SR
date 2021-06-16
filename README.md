@@ -1,1 +1,0 @@
-# sem5-theme2-SR
